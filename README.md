@@ -11,7 +11,9 @@ I am a semi-professional poker player- I specialise in live poker tournaments. I
 I am learning to code! 
 
 📫 How to reach me: 
+
 [LinkedIn](https://www.linkedin.com/in/jensenchow/)
+
 [FB](https://www.facebook.com/jensen.chow/)
 
 <!--
