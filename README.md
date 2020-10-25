@@ -6,7 +6,7 @@ I am a 3rd party seller on [Amazon](https://www.amazon.com/) USA. This is what I
 
 I am a semi-professional poker player- I specialise in live poker tournaments. I have [won](https://pokerdb.thehendonmob.com/player.php?a=r&n=329839) more than **$240,000** at [THE STAR](https://www.star.com.au)...  and teach people how (I do coaching)!
 
-⚡ Fun fact: I have been doing the Brazilian martial art, Capoeira, for 24 years. This is [me](https://youtu.be/tR7b4APOQB8)! I believe I can fly! We teach at 5 orphanages in the Philippines and I teach at my [academy](https://www.capoeiraau.org/) in Chatswood, NSW.
+⚡ Fun fact: I have been doing the Brazilian martial art, Capoeira, for 24 years. This is [me](https://youtu.be/tR7b4APOQB8)! **I believe I can fly!** We teach at 5 orphanages in the Philippines and my [academy](https://www.capoeiraau.org/) is in Chatswood, NSW.
 
 I am learning to code! 
 
