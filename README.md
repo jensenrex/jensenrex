@@ -12,9 +12,9 @@ I am learning to code!
 
 📫 How to reach me: 
 
-[LinkedIn](https://www.linkedin.com/in/jensenchow/)
+[LinkedIn](https://www.linkedin.com/in/jensodicta/)
 
-[FB](https://www.facebook.com/jensen.chow/)
+[FB](https://www.facebook.com/jensen.sodicta/)
 
 <!--
 **jensenrex/jensenrex** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
