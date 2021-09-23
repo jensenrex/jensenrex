@@ -8,7 +8,7 @@ I am a semi-professional poker player- I specialise in live poker tournaments. I
 
 ⚡ Fun fact: I have been doing the Brazilian martial art, Capoeira, for 26 years. This is [me](https://youtu.be/tR7b4APOQB8)! **I believe I can fly!** [We](https://www.facebook.com/capoeiraph) (my instructors and I) teach at 5 orphanages in the Philippines and my [academy](https://www.capoeiraau.org/) is in Chatswood, NSW.
 
-I am learning to code! 
+I am learning to code on launch school and Generations Junior Web Developer bootcamp! 
 
 📫 How to reach me: 
 
