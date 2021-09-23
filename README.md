@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-I am learning to code on launch school and Generations Junior Web Developer bootcamp! 
+🌱 I’m currently learning to code at Generations Junior Web Developer bootcamp (and doing a bit on Launch School)! 
 
 I am a 3rd party seller on [Amazon](https://www.amazon.com/) USA. With a couple of business partners, we sell our own brand and stunning designs of the coolest looking dust masks in the world. Selling private labelled products on Amazon is what I consider my "day job". I was hired by the regional head of [Payoneer](https://www.payoneer.com/)'s South East Asia hub to teach their clients. A couple of students have reached over US$400,000 in monthly sales. I mentor aspiring amazon entrepreneurs. 
 
