@@ -2,7 +2,7 @@
 
 🌱 I’m currently learning to code at Generations Junior Web Developer bootcamp (and doing a bit on Launch School)! 
 
-I am a 3rd party seller on [Amazon](https://www.amazon.com/) USA. With a couple of business partners, we sell [our own brand](www.axsyon.com) of stunning designs of the coolest looking dust masks in the world. Selling private labelled products on Amazon is what I consider my "day job". I was hired by the regional head of [Payoneer](https://www.payoneer.com/)'s South East Asia hub to teach their clients. A couple of students have reached over US$400,000 in monthly sales. I mentor aspiring amazon entrepreneurs. 
+I am a 3rd party seller on [Amazon](https://www.amazon.com/) USA. With a couple of business partners, we sell [our own brand](https://www.axsyon.com) of stunning designs of the coolest looking dust masks in the world. Selling private labelled products on Amazon is what I consider my "day job". I was hired by the regional head of [Payoneer](https://www.payoneer.com/)'s South East Asia hub to teach their clients. A couple of students have reached over US$400,000 in monthly sales. I mentor aspiring amazon entrepreneurs. 
 
 I am a semi-professional poker player- I specialise in live poker tournaments. I have [won](https://pokerdb.thehendonmob.com/player.php?a=r&n=329839) more than **AU$240,000** at [THE STAR](https://www.star.com.au)...  and teach people how (I do coaching)!
 
