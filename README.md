@@ -10,6 +10,8 @@ I graduated from [Founder Institute](https://fi.co/). 🤔 I’m looking for a t
 
 ⚡ Fun fact: I have been doing the Brazilian martial art, Capoeira, for 26 years. This is [me](https://youtu.be/tR7b4APOQB8)! **I believe I can fly!** [We](https://www.facebook.com/capoeiraph) (my instructors and I) teach at 5 orphanages in the Philippines and my [academy](https://www.capoeiraau.org/) is in Chatswood, NSW.
 
+![Me doing a one handed handstand!](https://github.com/jensenrex/jensenrex/blob/main/au-batido.jpg)
+
 📫 How to reach me: 
 
 [LinkedIn](https://www.linkedin.com/in/jensodicta/)
