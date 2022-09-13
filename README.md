@@ -1,8 +1,6 @@
 ### Hi there 👋
 
-I am a developer. I work at Infosys. 
-
-🌱 🌱 I’m currently learning Java, Javascript, SQL, React & Spring...
+I am a developer. I work at Infosys. As part of the Financial Services Application Development & Maintenance unit 🌱 🌱 I have learnt Java, Javascript, SQL, React & Spring...
 
 I finished the Generations Australia Junior Web Developer bootcamp in October 2021. 
 
